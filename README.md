@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **antonios.tarnanas@student.uclouvain.be**
 
-- ⚡ Fun fact **I am funny**
+- ⚡ Fun fact **I am joyful**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
